@@ -18,5 +18,3 @@
 play pathologic it will be 4 dollars during the summer sale or something. idk when else it goes on sale
 
 </p>
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1u1x937jtt5g1ytou7pq9mt7a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b3b7ac&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
