@@ -15,7 +15,6 @@
 
 <p align="center">
 
-play pathologic it will be 4 dollars during the summer sale or something. idk when else it goes on sale
+dni if the "i ship it" parody of "i love it" was not an integral part to your internet upbringing
 
 </p>
-dni if the "i ship it" parody of "i love it" was not an integral part to your internet upbringing
